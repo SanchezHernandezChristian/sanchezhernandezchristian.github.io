@@ -1,1 +1,0 @@
-# sanchezhernandezchristian.github.io
